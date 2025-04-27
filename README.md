@@ -1,0 +1,1 @@
+this is better form of web school journal. I wont to do edu.dnevnik.ru parted auto.
